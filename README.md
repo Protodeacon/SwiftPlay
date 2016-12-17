@@ -4,4 +4,4 @@
 
 Seeing how it goes.
 
-Adding a little more
+Adding a little bit more.
